@@ -1,1 +1,0 @@
-# maxrental.github.io
